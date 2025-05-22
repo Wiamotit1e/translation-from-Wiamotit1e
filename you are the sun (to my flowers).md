@@ -5,7 +5,7 @@
 
 Basil remembered Mari’s words to him years ago. He had, what some people say, “came out” to her, and told her about his crush on Sunny. 
 
-BAsil 回忆起了几年前，Mari 对他说过的话。Basil （按照某些人的说法）对 Mari 出柜了，告诉了 Mari 对 Sunny 的暗恋。
+Basil 回忆起了几年前，Mari 对他说过的话。Basil （按照某些人的说法）对 Mari 出柜了，告诉了 Mari 对 Sunny 的暗恋。
  
 
 *‘ If you decide to date a boy, Sunny or not, I’ll be by your side to support you. As long as you are good to them and they’re good to you, I don’t care who you decide to love. ’*
