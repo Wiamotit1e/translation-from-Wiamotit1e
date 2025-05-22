@@ -77,7 +77,7 @@ He hadn’t heard a word from her directly since then. Anything that he’d hear
 
 “We’re going to be heading to the mall a few towns over in a little bit. Do you need anything, Sunny?” He was snapped back into reality by Hero. After taking a moment for the words to register in his mind, he looked up and shook his head with a gentle smile. Hero continued, “Kel said he wanted to stay here. I figured you’d want to stay as well, but you’re free to come along if you’d like.”
 
-“我们过一会要去几个城镇外的一个购物广场。你要买什么吗，Sunny?”他思绪被英雄打断，回到了现实。理解这句话花了一会，然后抬起头，微笑着摇了摇头。Hero 继续说：“Kel 说了他想待在这里，我猜你也想待在这里，但是如果你想的话，你也可以跟过来。”
+“我们过一会要去几个城镇外的一个购物广场。你要买什么吗，Sunny?”他思绪被英雄打断，回到了现实。理解 Hero 的话花了一会，然后抬起头，微笑着摇了摇头。Hero 继续说：“Kel 说了他想待在这里，我猜你也想待在这里，但是如果你想的话，你也可以跟过来。”
 
 “I think I’ll stay here,” he replied politely, to which Kel cheered.
 
@@ -85,7 +85,7 @@ He hadn’t heard a word from her directly since then. Anything that he’d hear
 
 They spent the next 30 minutes chatting and catching up, Sunny learning that Hero had changed his major and that Kel had started applying for jobs now that he’d finished school. Afterward, Kel began suggesting things they could do together after everyone else left. Sunny nodded at each suggestion, but Kel seemed to notice that he already had something in mind.
 
-他们花了 30 分钟来聊天，了解近况， Sunny 得知 Hero 转了专业，Kel 现在完成了学业，已经在找工作了。后来 Kel 开始建议当别人走后，他们两个可以干什么。Sunny 同意了每一个提案，但是 Kel 好像注意到了 Sunny 已经想好了要做什么。s
+他们花了 30 分钟来聊天，了解近况， Sunny 得知 Hero 转了专业，Kel 现在完成了学业，已经在找工作了。后来 Kel 开始建议当别人走后，他们两个可以干什么。Sunny 同意了每一个提意，但是 Kel 好像注意到了 Sunny 已经想好了要做什么。s
 
 “It’s up to you, though, Sunny!” He said with a smile, “What do you want to do?”
 
@@ -93,7 +93,11 @@ They spent the next 30 minutes chatting and catching up, Sunny learning that Her
 
 Sunny paused for a moment, before suggesting, “I was thinking we could go to the park?” Seeing the park after getting off the bus had made him nostalgic, and he’d been hoping they would go there sometime soon. He hadn’t expected an opportunity to go today, but he definitely wanted to.
 
+Sunny 停了一会，在提出建议前，“我觉得我们可以去公园？”在下公交后看见公园让 Sunny 怀念过去。有时间的话，他想要去那里。他真的没有预料到今天就能有机会去那里，但是他绝对想要有。
+
 “That sounds great! Let’s go now!” Kel exclaimed as he grabbed Sunny’s hand and sprang up off the couch. He began charging toward the door.
+
+“听上去真棒！让我们去吧！”Kel 叫喊着，拉起 Sunny 的手，跳下沙发，开始对着门冲刺。
 
 “Hold on, Kel.” Hero said sternly, and Kel froze mid-sprint in an exaggerated running pose. “It’s really hot out today. Make sure you grab a couple water bottles before you leave. You guys need to stay hydrated.”
 
