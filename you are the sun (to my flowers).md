@@ -20,7 +20,7 @@ But… Has he really been good to Sunny? He had made things worse trying to cove
 
 Still, a part of him, a voice that sounded like Mari’s, reassured him that things would be okay, for real this time. He had improved significantly in the past year, and so had Sunny. Maybe, just maybe, if Sunny and him continued to get better, they could possibly have a future together.
 
-不变的是，他的一部分，他那和 Mari 一样的声音，让他相信一切都会变好。Basil 过去一年改变了很多，Sunny 也改变了很多。也许，只是也许，如果 他俩不断变好，他们就可能会拥有共同的未来。
+不变的是，他的一部分，他那和 Mari 一样的声音，让他相信一切都会变好。Basil 过去一年改变了很多，Sunny 也改变了很多。也许，只是也许，如果他们不断变好，他们就可能会拥有共同的未来。
  
 
 Basil looked up at Sunny with wet, wanting , eyes. “Sunny… K-Kiss me.”
