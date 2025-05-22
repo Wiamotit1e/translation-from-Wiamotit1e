@@ -18,7 +18,7 @@ Finally, after a full year, a two-hour flight, and nearly three-hour bus ride, S
 
 His visit would be a lot like last year’s, except that he would be staying for a full month. He would spend most nights with Hero and Kel, and maybe have a sleepover or two at Basil’s house. He actually hadn’t talked to Basil in a while, but he seemed to be doing well most times they had spoken since he’d moved. Apparently, he’d been working part-time at Fix-It for at least a year now. Sunny had just assumed that Basil had been doing most of his work in the gardening area, but now that he thought about it, he wasn’t sure if he’d actually said that.
 
-他的造访和去年相比，很相识，但是这次会留在这里整一个月。在大多数夜晚，他会跟 Hero 和 Kel 共度夜晚，也许会去 Basil 家里一起过夜一两次。他跟 Basil 有一段时间没有联系了，但是自从他搬家后，他的大多数谈话都发现似乎 Basil 过得很棒。显然，他到现在在 Fix-It 兼职至少一年了。Sunny 只是猜测 Basil 做的大部分工作是一些花事，但是现在他想了想它，他不能确定他是不是这么说过。
+他的造访和去年相比，很相识，但是这次会留在这里整一个月。在大多数夜晚，他会跟 Hero 和 Kel 在一起，也许会去 Basil 家里一起过夜一两次。他跟 Basil 有一段时间没有联系了，但是自从他搬家后，他的大多数谈话都发现似乎 Basil 过得很棒。显然，他到现在在 Fix-It 兼职至少一年了。Sunny 只是猜测 Basil 做的大部分工作是一些花事，但是现在他想了想它，他不能确定他是不是这么说过。
 
 After a long ride, most of which was spent gazing out the windows and daydreaming, the bus slowed to a stop at Faraway Park. Sunny, being the only person in the decently-packed bus to get off at this stop, stepped outside and was blasted with a wave of heat and humidity, a strong contrast to the surprisingly well-air-conditioned vehicle. He knew he’d have to walk a short distance once he got off, but he had completely forgotten how warm Faraway gets in the summers compared to the northern city he currently lives in.
 
