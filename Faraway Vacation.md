@@ -1,4 +1,4 @@
-21:09
+0:43
 
 
 Summary:
@@ -26,11 +26,20 @@ After a long ride, most of which was spent gazing out the windows and daydreamin
 
 Kel’s house had looked exactly as he’d remembered, same yard decor and all. He began approaching the driveway when Kel burst through the door, shouting Sunny’s name and running in his direction. The door had flung open so fast that it hit the wall with a loud ***SLAM***, leaving a large gash where the impact had occurred. Kel briefly froze in place and processed the sound with a look that screamed, ‘*Oh god fuck I did it again’* before resuming his sprint as if nothing had happened. He tackled Sunny into a bone-crushing hug.
 
+Kel 的家看上去他所记得的一模一样，一样的院子装饰和一切。他正准备进到院子里时，Kel 冲出了门，叫着 Sunny 的名字，向着他的方向跑去。门被突然打开，速度之快让他撞向墙壁，发出了一阵响亮的***撞击声***，在撞击发生地方，留下了一个巨大的裂痕。Kel 稍微在原地楞了一下，因为这个声音，他脸上浮现出的表情在尖叫：“*妈的，我又这么做了”*，然后他就重新开始冲刺，就好像什么都没有发生一样。他给个 Sunny 一个好像能压碎骨头的的拥抱，拦住了 Sunny。
+
 “It’s so good to see you again!” He nearly yelled.
+
+“能再看见你真是太好了！”他几乎在叫喊。
 
 “You too,” Sunny replied quietly, then added, “Congrats on graduating.” He gave Kel a soft smile and looked at him. He’d been wearing a slightly different outfit than what Sunny was used too seeing, sporting a loose, thin T-Shirt with a similar design as the one on his jersey, and a pair of cargo shorts nearly identical to the ones Sunny was wearing.
 
+“我也一样。”Sunny 小声回应，然后补充：“恭喜毕业。”他给了 Kel 一个柔软的微笑，看向他。他的穿着和 Sunny 经常看到的有点不同，一个宽松的薄款的设计和他的那个运动衫很像的 T 恤，和一个与 Sunny 正在穿着的几乎一模一样的工装短裤。
+
 Hero exited the house shortly after Kel, inspecting the damage on the wall. He sighed, then looked at the two of them, clearly holding back a comment about the large crack that Kel was certainly going to have to pay for. “Hey, Sunny. Glad you could make it,” He said with a gentle beam, before motioning for them to come inside.
+
+Hero 在 Kel走后不久，离开了房间，并检查这墙上的损伤。他叹了气，然后看向他俩，很明显在强忍对着这个 Kel 明显有必要为其付出代价的大裂缝发布评论的欲望。“嘿，Sunny。你能来这真是太让我高兴了。”他温和的笑着说，然后示意他们进来。
+
 
 
 
@@ -40,17 +49,27 @@ Hero exited the house shortly after Kel, inspecting the damage on the wall. He s
 
 It still felt odd to Sunny, even after two years. After his confession, Kel had been the first to reach out, just over a month after he’d been discharged from the hospital.
 
+对 Sunny 来说，尽管过了两年，这里的空气还是很古怪。在他坦白后，Kel 成为了他第一个与他联系的人，仅仅只在出院后用了一个月的时间。
+
 ‘*I… I don’t think I can forgive you… at least not yet. But, I really care about you, Sunny. You’re still my friend.’*
+
+“*我……我认为我不能原谅你……至少现在不能。但是我真的关心你,Sunny。你还是我的朋友。”*
 
 Kel’s words rang in his head, and even now, recalling them made him tear up slightly. He was terrified when he’d first heard his voice over the phone, having expected the worst. Sunny could barely keep his composure after hearing what Kel had said. Only a mere two weeks passed before another phone call, this time with Hero joining in as well and mirroring Kel’s sentiment.
 
+Kel 的话在 Sunny 的脑中回荡，直到现在，回想起它还是令他有点心碎。在他第一次从电话里听到 Kel 的声音时，他吓坏了，做好了最坏的打算，在听到 Kel 说的话时，他几乎不能保持冷静。仅仅过了短短的两周，Sunny 又接到一次电话，这一次 Hero 也加入了对话，复刻了 Kel 的观点。
+
 Aubrey was a different story. Sunny had only spoken to her once since his confession, a few months after the first call with Kel.
 
-‘*I guess… I just didn’t understand how you could **do** that to us. I still **don’t**, honestly. But, when I think about that day at the lake… if you guys hadn’t been there… if Hero hadn’t shown up...’ She paused for a long moment. Sunny could tell, despite her somewhat calm demeanor, that she was struggling to keep her composure as she spoke. ‘I can’t say I would have reacted better. And you guys were only 12! I was 16 when I…’ Another pause. ‘I guess… I’m trying to say that I really want to forgive you. I’m still really mad, but I don’t hate you guys. I guess I just need more time.’*
+Aubrey 有着不一样的剧情。Sunny 只在坦白后跟她联系过一次，就在第一次给 Kel 打电话的几个月后。
+
+‘*I guess… I just didn’t understand how you could **do** that to us. I still **don’t**, honestly. But, when I think about that day at the lake… if you guys hadn’t been there… if Hero hadn’t shown up...’* She paused for a long moment. Sunny could tell, despite her somewhat calm demeanor, that she was struggling to keep her composure as she spoke. ‘*I can’t say I would have reacted better. And you guys were only 12! I was 16 when I…’* Another pause. ‘*I guess… I’m trying to say that I really want to forgive you. I’m still really mad, but I don’t hate you guys. I guess I just need more time.’*
+
+“*我猜……我只是做不到理解你怎么可以为我们**做**出那种事。我还是**做不到**，说实话。但是，当我想起我们在湖边的那一天……如果你们不在那里……如果 Hero 没有出现……”*他停了很长时间。Sunny 可以指出，尽管她不知道为什么这么冷静，在她说话时她正在努力保持镇静。“*我不能说我可以做的更好。而且你们才 12 岁！但我在 16 岁的时候……”* 另一次停顿。“*我猜……我在尝试着说我真的想原谅。我还是很生气，但是我并不恨你们。我只是需要更多的时间。”*
 
 He hadn’t heard a word from her directly since then. Anything that he’d heard about her in the past year and a half was from Kel, who seemed to still talk to her regularly. Last time he mentioned her, it was because she and Kim had been saving up to rent a cheap apartment on the other side of town together. She still lived in Faraway, just not in the same neighborhood. He hoped he’d get a chance to see her sometime this summer, if she would be okay with seeing him again. He’d likely need Kel to ask her about it first. He wondered if Kel had even mentioned that Sunny would be in town.
 
-
+从那以后，Aubray 就没有跟他说过一句话了。 Sunny 对过去一年听到的她的消息，有一半都是 Kel 告诉的。Kel 似乎还是在跟 Aubray 定期闲聊。上一次 Kel 提到她，是因为她和 Kim 一直在攒钱，准备在小镇另一边租一间便宜的公寓。她还是生活在 Farwary Town，只是邻居不一样了。Sunny希望他会有机会在这个夏天看她一次，如果再去见到她时让她不介意的话。Sunny 很可能需要 Kel 先去问问她。Sunny 怀疑 Kel 是否 Kel 是否提到过 Sunny 会到城镇里来。
 
 -----
 
