@@ -15,7 +15,7 @@ BAsil 回忆起了几年前，Mari 对他说过的话。Basil （按照某些人
 
 But… Has he really been good to Sunny? He had made things worse trying to cover up what Sunny did to his sister. He tried to convince Sunny to do a double suicide, and when Sunny didn't comply, he fully broke down and tried to kill him! That wasn't healthy! Mari never would have expected that Sunny would push her, and he was damn sure that she wouldn't have expected Basil’s ‘remedy’ for that. He didn't deserve to be with someone, and Sunny was that someone. He didn't want to hurt Sunny again, but he knew that given some time, he would make another awful mistake…
 
-但是……他真的对 Sunny 好吗？他曾尝试掩饰 Sunny 做的事，他曾尝试说服 Sunny 双双自杀，在 Sunny 没有答应时，他完全崩溃了，甚至尝试杀了他！这不健康！Mari 绝对不会想到 Sunny 会推他，他很确信，Mari 也想不到 Basil 是怎样“补救”的。他永远没有资格去跟某人在一起，尤其是和 Sunny。他不想再伤害 Sunny 了，但是 Basil 也知道，只要再过一段时间，他会造成另一个可怕的错误。 
+但是……他真的对 Sunny 好吗？他曾尝试掩饰 Sunny 对他的姐姐做的事，他曾尝试说服 Sunny 双双自杀，在 Sunny 没有答应时，他完全崩溃了，甚至尝试杀了他！这不健康！Mari 绝对不会想到 Sunny 会推他，他很确信，Mari 也想不到 Basil 是怎样“补救”的。他永远没有资格去跟某人在一起，尤其是和 Sunny。他不想再伤害 Sunny 了，但是 Basil 也知道，只要再过一段时间，他会造成另一个可怕的错误。 
  
 
 Still, a part of him, a voice that sounded like Mari’s, reassured him that things would be okay, for real this time. He had improved significantly in the past year, and so had Sunny. Maybe, just maybe, if Sunny and him continued to get better, they could possibly have a future together.
