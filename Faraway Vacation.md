@@ -65,11 +65,11 @@ Aubrey 有着不一样的剧情。Sunny 只在坦白后跟她联系过一次，�
 
 ‘*I guess… I just didn’t understand how you could **do** that to us. I still **don’t**, honestly. But, when I think about that day at the lake… if you guys hadn’t been there… if Hero hadn’t shown up...’* She paused for a long moment. Sunny could tell, despite her somewhat calm demeanor, that she was struggling to keep her composure as she spoke. ‘*I can’t say I would have reacted better. And you guys were only 12! I was 16 when I…’* Another pause. ‘*I guess… I’m trying to say that I really want to forgive you. I’m still really mad, but I don’t hate you guys. I guess I just need more time.’*
 
-“*我猜……我只是不理解你怎么可以为我们**做**出那种事。我还是**不理解**，说实话。但是，当我想起我们在湖边的那一天……如果你们不在那里……如果 Hero 没有出现……”* 他停了很长时间。Sunny 可以指出，尽管她不知道为什么这么冷静，在她说话时她正在努力保持镇静。“*我不能说我可以做的更好。而且你们才 12 岁！但我在 16 岁的时候……”* 另一次停顿。“*我猜……我在尝试着说我真的想原谅你。我还是很生气，但是我并不恨你们。我只是需要更多的时间。”*
+“*我猜……我只是不理解你怎么可以为我们**做**出那种事。我还是**不理解**，说实话。但是，当我想起我们在湖边的那一天……如果你们不在那里……如果 Hero 没有出现……”* 他停了很长时间。Sunny 可以指出，尽管她不知道为什么这么冷静，在她说话时她正在努力保持镇静。“*我不能说我可以做的更好。而且你们才 12 岁！但我在 16 岁的时候……”* 又一次停顿。“*我猜……我在尝试着说我真的想原谅你。我还是很生气，但是我并不恨你们。我只是需要更多的时间。”*
 
 He hadn’t heard a word from her directly since then. Anything that he’d heard about her in the past year and a half was from Kel, who seemed to still talk to her regularly. Last time he mentioned her, it was because she and Kim had been saving up to rent a cheap apartment on the other side of town together. She still lived in Faraway, just not in the same neighborhood. He hoped he’d get a chance to see her sometime this summer, if she would be okay with seeing him again. He’d likely need Kel to ask her about it first. He wondered if Kel had even mentioned that Sunny would be in town.
 
-从那以后，Aubray 就没有跟他说过一句话了。 Sunny 对过去一年听到的她的消息，有一半都是 Kel 告诉的。Kel 似乎还是在跟 Aubray 定期闲聊。上一次 Kel 提到她，是因为她和 Kim 一直在攒钱，准备在小镇另一边租一间便宜的公寓。她还是生活在 Farwary 镇，只是邻居不一样了。Sunny希望他会有机会在这个夏天看她一次，如果再去见到她时让她不介意的话。Sunny 很可能需要 Kel 先去问问她。Sunny 怀疑 Kel 是否提到过 Sunny 会回来。
+从那以后，Aubray 就没有跟他说过一句话了。 Sunny 对过去一年听到的她的消息，有一半都是 Kel 告诉的。Kel 似乎还是在跟 Aubray 定期闲聊。上一次 Kel 提到她，是因为她和 Kim 一直在攒钱，准备在小镇另一边租一间便宜的公寓。她还是生活在 Farwary 镇，只是邻居不一样了。Sunny希望他会有机会在这个夏天看她一次，如果她愿意见面的话。Sunny 很可能需要 Kel 先去问问她。Sunny 怀疑 Kel 是否提到过 Sunny 会回来。
 
 -----
 
@@ -77,31 +77,35 @@ He hadn’t heard a word from her directly since then. Anything that he’d hear
 
 “We’re going to be heading to the mall a few towns over in a little bit. Do you need anything, Sunny?” He was snapped back into reality by Hero. After taking a moment for the words to register in his mind, he looked up and shook his head with a gentle smile. Hero continued, “Kel said he wanted to stay here. I figured you’d want to stay as well, but you’re free to come along if you’d like.”
 
-“我们过一会要去几个城镇外的一个购物广场。你要买什么吗，Sunny?”他思绪被英雄打断，回到了现实。理解 Hero 的话花了一会，然后抬起头，微笑着摇了摇头。Hero 继续说：“Kel 说了他想待在这里，我猜你也想待在这里，但是如果你想的话，你也可以跟过来。”
+“我们过一会要去几个城镇外的一个购物广场。你要买什么吗，Sunny?” Hero 的声音将 Sunny 拉回现实。理解 Hero 的话花了一会，然后抬起头微笑着摇了摇头。Hero 继续说：“Kel 说了他想待在家里，我猜你也是这么想的，但是如果你想一起去的话，你也可以跟过来。”
 
 “I think I’ll stay here,” he replied politely, to which Kel cheered.
 
-“我认为我会待在这里。” Sunny 礼貌地回答，这令 Kel 欢呼。
+“我想我要待在这里。” Sunny 礼貌地回答，这让 Kel 欢呼起来。
 
 They spent the next 30 minutes chatting and catching up, Sunny learning that Hero had changed his major and that Kel had started applying for jobs now that he’d finished school. Afterward, Kel began suggesting things they could do together after everyone else left. Sunny nodded at each suggestion, but Kel seemed to notice that he already had something in mind.
 
-他们花了 30 分钟来聊天，了解近况， Sunny 得知 Hero 转了专业，Kel 现在完成了学业，已经在找工作了。后来 Kel 开始建议当别人走后，他们两个可以干什么。Sunny 同意了每一个提意，但是 Kel 好像注意到了 Sunny 已经想好了要做什么。s
+他们花了 30 分钟聊天，了解近况， Sunny 得知 Hero 换了专业，而 Kel 现在完成了学业，已经在找工作了。后来 Kel 开始提议当别人走后，他们可以干什么。Sunny 对每一个提议都点头同意，但是 Kel 好像注意到了 Sunny 早有打算。
 
 “It’s up to you, though, Sunny!” He said with a smile, “What do you want to do?”
 
-“取决于你，Sunny！” Kel 带着笑容说到：“你想做什么？”
+“还是听你的，Sunny！” Kel 带着笑容说：“你想做什么？”
 
 Sunny paused for a moment, before suggesting, “I was thinking we could go to the park?” Seeing the park after getting off the bus had made him nostalgic, and he’d been hoping they would go there sometime soon. He hadn’t expected an opportunity to go today, but he definitely wanted to.
 
-Sunny 停了一会，在提出建议前，“我觉得我们可以去公园？”在下公交后看见公园让 Sunny 怀念过去。有时间的话，他想要去那里。他真的没有预料到今天就能有机会去那里，但是他绝对想要有。
+Sunny 停了一会，提议道：“我想，我们可以去公园？”在下车后看见的公园让 Sunny 心生怀念。他早就想要去那里。虽然他真的没有预料到今天就有机会，但是他确实很想去。
 
 “That sounds great! Let’s go now!” Kel exclaimed as he grabbed Sunny’s hand and sprang up off the couch. He began charging toward the door.
 
-“听上去真棒！让我们去吧！”Kel 叫喊着，拉起 Sunny 的手，跳下沙发，开始对着门冲刺。
+“听上去真棒！让我们出发吧！”Kel 叫喊着，拉起 Sunny 的手，跳下沙发，向门口冲去。
 
 “Hold on, Kel.” Hero said sternly, and Kel froze mid-sprint in an exaggerated running pose. “It’s really hot out today. Make sure you grab a couple water bottles before you leave. You guys need to stay hydrated.”
 
+“等一下， Kel。” Hero 严肃地说，Kel 停在一个夸张的起跑姿势。“今天太热了，在走之前要确保你们拿了几瓶水。你们需要保持水分。”
+
 “Uuuuugggghhhhh, fiiiiiinneeeee” Kel jokingly groaned, before dramatically shuffling toward the kitchen. He returned a minute later with two 1-liter water bottles, and handed one to Sunny.
+
+“呃呃呃，好~~” Kel 打趣的呻吟着，接着夸张地冲向厨房。一分钟后带着两个一升装的水瓶回来了，然后把其中一个给了 Sunny。
 
 Sunny opened the bottle and took a small sip, before realizing just how dry his mouth was. He thought back to earlier, and realized he hadn’t really drank anything since he woke up that morning. The walk from the bus stop probably didn’t help him retain his hydration, either. He took a large gulp, then another, and another, until he had drank everything in the bottle, finally feeling refreshed. Kel stared at him in disbelief.
 
