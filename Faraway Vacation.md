@@ -22,7 +22,7 @@ His visit would be a lot like last year’s, except that he would be staying for
 
 After a long ride, most of which was spent gazing out the windows and daydreaming, the bus slowed to a stop at Faraway Park. Sunny, being the only person in the decently-packed bus to get off at this stop, stepped outside and was blasted with a wave of heat and humidity, a strong contrast to the surprisingly well-air-conditioned vehicle. He knew he’d have to walk a short distance once he got off, but he had completely forgotten how warm Faraway gets in the summers compared to the northern city he currently lives in.
 
-漫长的车程中，Sunny 大多数时间都在看向窗外，做白日梦，然后，公交减速，要在 Faraway 公园停车时，这辆乘客不少的车上只有他 Sunny下车，当他走出车外后，感到了一股潮湿的热浪，与那辆空气质量出奇好的车形成了强烈的对比。他知道他还得再走一小段路，但是他完全忘了，跟他现居的南方城市相比，Faraway Town 在夏天可以变得多么热。
+漫长的车程中，Sunny 大多数时间都在看向窗外，做白日梦，然后，公交减速，要在 Faraway 公园停车时，这辆乘客不少的车上只有他 Sunny下车，当他走出车外，潮湿的热浪扑面而来，与那辆质量出奇好的车内环境形成了强烈的对比。他知道他还得再走一小段路，但是他完全忘了，跟他现居的北方城市相比，Faraway 在夏天可以变得多么热。
 
 Kel’s house had looked exactly as he’d remembered, same yard decor and all. He began approaching the driveway when Kel burst through the door, shouting Sunny’s name and running in his direction. The door had flung open so fast that it hit the wall with a loud ***SLAM***, leaving a large gash where the impact had occurred. Kel briefly froze in place and processed the sound with a look that screamed, ‘*Oh god fuck I did it again’* before resuming his sprint as if nothing had happened. He tackled Sunny into a bone-crushing hug.
 
