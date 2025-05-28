@@ -14,7 +14,7 @@ I wrote this back in July on OmoOrg and then deleted it like two days later. If 
 Work Text:
 Finally, after a full year, a two-hour flight, and nearly three-hour bus ride, Sunny would be able to see his friends again. While he had come to visit the previous summer, he’d only stayed for a single week. Ever since, he’d only been able to talk to them via phone calls. There wasn’t any particular reason for them not meeting up, other than schedules not working out. He’d wanted to come over during winter break, before learning that Kel and Hero would be out of town for almost the entirety of their vacation.
 
-终于，经过一整年后，两小时的飞机，三小时的公交车车程，Sunny 能够再一次看到他的朋友们了。尽管他在前一个夏天来看过一次，他只待了一星期。从那以后，Sunny就只能跟他们电话交流了。他们没有什么特别的原因不见面了，如果有，那就是时间计划有冲突。在寒假时，他就想过来了，但之后得知了 Kel 和 Hero 几乎整个假期都不在本地。
+终于，在等了一整年，两小时的飞机，三小时的车程后，Sunny 能够再一次看到他的朋友们了。尽管他在去年夏天来看过一次，但只待了一星期。从那以后，Sunny就只能跟他们电话交流了。他们没有什么特别的原因不见面了，只是因为时间对不上。在寒假时，他就想过来了，但之后得知了 Kel 和 Hero 几乎整个假期都不在本地。
 
 His visit would be a lot like last year’s, except that he would be staying for a full month. He would spend most nights with Hero and Kel, and maybe have a sleepover or two at Basil’s house. He actually hadn’t talked to Basil in a while, but he seemed to be doing well most times they had spoken since he’d moved. Apparently, he’d been working part-time at Fix-It for at least a year now. Sunny had just assumed that Basil had been doing most of his work in the gardening area, but now that he thought about it, he wasn’t sure if he’d actually said that.
 
