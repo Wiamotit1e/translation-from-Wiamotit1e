@@ -101,7 +101,7 @@ Sunny 停了一会，提议道：“我想，我们可以去公园？”在下�
 
 “Hold on, Kel.” Hero said sternly, and Kel froze mid-sprint in an exaggerated running pose. “It’s really hot out today. Make sure you grab a couple water bottles before you leave. You guys need to stay hydrated.”
 
-“等一下， Kel。” Hero 严肃地说，Kel 停在一个夸张的起跑姿势。“今天太热了，在走之前要确保你们拿了几瓶水。你们需要保持水分。”
+“等一下， Kel。” Hero 严肃地说，Kel 停在一个夸张的起跑姿势。“今天太热了，在走之前要确保你们拿了几瓶水。你们需要注意补水。”
 
 “Uuuuugggghhhhh, fiiiiiinneeeee” Kel jokingly groaned, before dramatically shuffling toward the kitchen. He returned a minute later with two 1-liter water bottles, and handed one to Sunny.
 
@@ -109,9 +109,15 @@ Sunny 停了一会，提议道：“我想，我们可以去公园？”在下�
 
 Sunny opened the bottle and took a small sip, before realizing just how dry his mouth was. He thought back to earlier, and realized he hadn’t really drank anything since he woke up that morning. The walk from the bus stop probably didn’t help him retain his hydration, either. He took a large gulp, then another, and another, until he had drank everything in the bottle, finally feeling refreshed. Kel stared at him in disbelief.
 
+Sunny 打开了瓶子，喝了一小口，才意识到他的嘴已经多么干燥了。他回想了一下，意识到他从早晨起来就什么都没喝过。从车站开始走的路，也很可能让他有点脱水。他喝了一大口，然后又一口，然后再一口，直到把这一整瓶喝光，才终于感到缓过来。Kel 以难以置信的眼神看着他。
+
 “Wowww…” Kel spoke, seeming unsure of what else to say. He paused for a moment, before saying, “Sorry… I should have offered to get you something to drink. Don’t be afraid to let me know if you need anything!” Kel seemed to think that Sunny had simply been too shy to ask for a drink. He thought about correcting him, but realized that he probably would have been had he realized how thirsty he actually was. He opted instead to reply with a thankful, “Okay,” before walking to the kitchen to refill his bottle.
 
+“哇……” Kel 说，好像说不出别的话来。他停顿了一片刻，说：“抱歉……我早就该给你点喝的。只要你想要什么就告诉我，不用客气！” Kel 似乎认为 Sunny 只是太害羞才不能开口要水。他想要修正他，但是意识到了他可能早就该发觉到他有多么渴了。他最终回了一句“好的”，然后去厨房重新装满了瓶子。
+
 As Sunny was exiting the kitchen, Kel dashed up to him and once again grabbed his hand, pulling him toward the door. He suddenly stopped, opening the door very gently as his parents watched him like eagles, making sure the door didn’t touch the damaged wall. He and Sunny walked outside calmly before Kel SLAMMED the door shut at full force. Sunny genuinely couldn’t tell if he intended to slam it or if it was somehow an accident. The two of them began walking down the sidewalk and in the direction of the park.
+
+在 Sunny 离开厨房时， Kel 冲向他，又一次拉起他的手，拉着他走向大门。他突然停下，非常温柔地打开了大门，因为他的父母正像鹰一样看着 Kel，确保大门不会碰到已经受损的墙壁。他和 Sunny 冷静的出门，接着 Kel 用全力把门关上。Sunny 真的不明白他是故意的用力甩门还是这只是偶然。这两个人沿着人行道，向公园出发。
 
 After rounding the corner and approaching the crosswalk, Kel suddenly perked up and, yet again, grabbed Sunny’s hand. He braced himself to be dragged as if he were walking a large dog who had just seen a squirrel for the first time. Instead, Kel just pointed excitedly at the vending machine on the other side of the street with a massive grin on his face.
 
