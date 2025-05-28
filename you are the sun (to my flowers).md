@@ -1,4 +1,4 @@
-Orign : https://archiveofourown.org/works/39736791
+Origin : https://archiveofourown.org/works/39736791
 
 
 
