@@ -69,7 +69,7 @@ Aubrey 有着不一样的剧情。Sunny 只在坦白后跟她联系过一次，�
 
 He hadn’t heard a word from her directly since then. Anything that he’d heard about her in the past year and a half was from Kel, who seemed to still talk to her regularly. Last time he mentioned her, it was because she and Kim had been saving up to rent a cheap apartment on the other side of town together. She still lived in Faraway, just not in the same neighborhood. He hoped he’d get a chance to see her sometime this summer, if she would be okay with seeing him again. He’d likely need Kel to ask her about it first. He wondered if Kel had even mentioned that Sunny would be in town.
 
-从那以后，Aubray 就没有跟他说过一句话了。 Sunny 对过去一年听到的她的消息，有一半都是 Kel 告诉的。Kel 似乎还是在跟 Aubray 定期闲聊。上一次 Kel 提到她，是因为她和 Kim 一直在攒钱，准备在小镇另一边租一间便宜的公寓。她还是生活在 Farwary 镇，只是邻居不一样了。Sunny希望他会有机会在这个夏天看她一次，如果再去见到她时让她不介意的话。Sunny 很可能需要 Kel 先去问问她。Sunny 怀疑 Kel 是否 Kel 是否提到过 Sunny 会到城镇里来。
+从那以后，Aubray 就没有跟他说过一句话了。 Sunny 对过去一年听到的她的消息，有一半都是 Kel 告诉的。Kel 似乎还是在跟 Aubray 定期闲聊。上一次 Kel 提到她，是因为她和 Kim 一直在攒钱，准备在小镇另一边租一间便宜的公寓。她还是生活在 Farwary 镇，只是邻居不一样了。Sunny希望他会有机会在这个夏天看她一次，如果再去见到她时让她不介意的话。Sunny 很可能需要 Kel 先去问问她。Sunny 怀疑 Kel 是否提到过 Sunny 会回来。
 
 -----
 
