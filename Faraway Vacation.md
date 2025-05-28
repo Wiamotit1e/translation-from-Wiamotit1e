@@ -26,7 +26,7 @@ After a long ride, most of which was spent gazing out the windows and daydreamin
 
 Kel’s house had looked exactly as he’d remembered, same yard decor and all. He began approaching the driveway when Kel burst through the door, shouting Sunny’s name and running in his direction. The door had flung open so fast that it hit the wall with a loud ***SLAM***, leaving a large gash where the impact had occurred. Kel briefly froze in place and processed the sound with a look that screamed, ‘*Oh god fuck I did it again’* before resuming his sprint as if nothing had happened. He tackled Sunny into a bone-crushing hug.
 
-Kel 的家看上去他所记得的一模一样，一样的院子装饰和一切。他正准备进到院子里时，Kel 冲出了门，叫着 Sunny 的名字，向着他的方向跑去。门被突然打开，速度之快让他撞向墙壁，发出了一阵响亮的***撞击声***，在撞击发生地方，留下了一个巨大的裂痕。Kel 稍微在原地楞了一下，因为这个声音，他脸上浮现出的表情在尖叫：“*妈的，我又这么做了”*，然后他就重新开始冲刺，就好像什么都没有发生一样。他给个 Sunny 一个好像能压碎骨头的的拥抱，拦住了 Sunny。
+Kel 的家看上去他所记得的一模一样，院子的装饰和一切都和以前一样。就在 Sunny 走向车道时，Kel 冲出了门，喊着 Sunny 的名字，向着他的方向跑去。门被猛然打开，速度之快，使其撞向墙壁时，发出一阵响亮的***撞击声***，在撞击处留下了一个巨大的裂痕。Kel 稍微在原地楞了一下，因为这个声音，他脸上浮现出的表情在尖叫：“*天啊我又搞砸了”*，然后他就重新开始冲刺，就好像什么都没有发生一样。他给个 Sunny 一个几乎要压碎骨头的的拥抱。
 
 “It’s so good to see you again!” He nearly yelled.
 
@@ -34,11 +34,11 @@ Kel 的家看上去他所记得的一模一样，一样的院子装饰和一切�
 
 “You too,” Sunny replied quietly, then added, “Congrats on graduating.” He gave Kel a soft smile and looked at him. He’d been wearing a slightly different outfit than what Sunny was used too seeing, sporting a loose, thin T-Shirt with a similar design as the one on his jersey, and a pair of cargo shorts nearly identical to the ones Sunny was wearing.
 
-“我也一样。”Sunny 小声回应，然后补充：“恭喜毕业。”他给了 Kel 一个柔软的微笑，看向他。他的穿着和 Sunny 经常看到的有点不同，一个宽松的薄款的设计和他的那个运动衫很像的 T 恤，和一个与 Sunny 正在穿着的几乎一模一样的工装短裤。
+“我也一样。”Sunny 小声回应，然后补充：“恭喜毕业。”他给了 Kel 一个柔软的微笑，看向他。对方穿着和往常略有不同的装束：一件宽松的薄T恤，图案和他那件运动衫很像，下身则是条和Sunny身上几乎同款的工装短裤。
 
 Hero exited the house shortly after Kel, inspecting the damage on the wall. He sighed, then looked at the two of them, clearly holding back a comment about the large crack that Kel was certainly going to have to pay for. “Hey, Sunny. Glad you could make it,” He said with a gentle beam, before motioning for them to come inside.
 
-Hero 在 Kel走后不久，离开了房间，并检查这墙上的损伤。他叹了气，然后看向他俩，很明显在强忍对着这个 Kel 明显有必要为其付出代价的大裂缝发布评论的欲望。“嘿，Sunny。你能来这真是太让我高兴了。”他温和的笑着说，然后示意他们进来。
+Hero 在 Kel走后不久，走出了房子，并检查这墙上的损伤。他叹了气，然后看向他俩，很明显在强忍对着这个 Kel 肯定得赔偿的大裂缝发表评论的冲动。“嘿，Sunny。你能来这真是太让我高兴了。”他温和的笑着说，然后示意他们进来。
 
 
 
