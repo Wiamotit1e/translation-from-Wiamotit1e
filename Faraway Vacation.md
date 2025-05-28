@@ -18,11 +18,11 @@ Finally, after a full year, a two-hour flight, and nearly three-hour bus ride, S
 
 His visit would be a lot like last year’s, except that he would be staying for a full month. He would spend most nights with Hero and Kel, and maybe have a sleepover or two at Basil’s house. He actually hadn’t talked to Basil in a while, but he seemed to be doing well most times they had spoken since he’d moved. Apparently, he’d been working part-time at Fix-It for at least a year now. Sunny had just assumed that Basil had been doing most of his work in the gardening area, but now that he thought about it, he wasn’t sure if he’d actually said that.
 
-他的造访和去年相比，很相似，但是这次会留在这里整一个月。在大多数夜晚，他会跟 Hero 和 Kel 在一起，也许会去 Basil 家里一起过夜一两次。他跟 Basil 有一段时间没有联系了，但是自从他搬家后，他的大多数谈话都发现似乎 Basil 过得很棒。显然，他到现在在 Fix-It 兼职至少一年了。Sunny 只是猜测 Basil 做的大部分工作是一些花事，但是现在他想了想它，他不能确定他是不是这么说过。
+他的造访和去年很像，但是这次会留在这里整一个月。在大多数夜晚，他会跟 Hero 和 Kel 在一起，可能还会去 Basil 家里一起过夜一两次。他跟 Basil 有一段时间没有联系了，但是自从他搬家后，他的大多数谈话都发现似乎 Basil 过得很不错。显然他在 Fix-It 兼职至少一年了。Sunny 只是猜测 Basil 做的大部分工作是一些园艺工作，但是现在他想想，他不能确定他是不是这么说过。
 
 After a long ride, most of which was spent gazing out the windows and daydreaming, the bus slowed to a stop at Faraway Park. Sunny, being the only person in the decently-packed bus to get off at this stop, stepped outside and was blasted with a wave of heat and humidity, a strong contrast to the surprisingly well-air-conditioned vehicle. He knew he’d have to walk a short distance once he got off, but he had completely forgotten how warm Faraway gets in the summers compared to the northern city he currently lives in.
 
-在那漫长的公交车程上，Sunny 大多数时间都在看向窗外，做白日梦，然后，公交减速，要在 Faraway Park 停车。Sunny，作为这个装载得体的公交车里的唯一在这一站下车一个人，当他走出车外后，感到了一股潮湿的热浪，与那辆空气质量出奇好的车形成了强烈的对比。他知道他还得再走一小段路，但是他完全忘了，跟他现居的南方城市相比，Faraway Town 在夏天可以变得多么热。
+漫长的车程中，Sunny 大多数时间都在看向窗外，做白日梦，然后，公交减速，要在 Faraway 公园停车时，这辆乘客不少的车上只有他 Sunny下车，当他走出车外后，感到了一股潮湿的热浪，与那辆空气质量出奇好的车形成了强烈的对比。他知道他还得再走一小段路，但是他完全忘了，跟他现居的南方城市相比，Faraway Town 在夏天可以变得多么热。
 
 Kel’s house had looked exactly as he’d remembered, same yard decor and all. He began approaching the driveway when Kel burst through the door, shouting Sunny’s name and running in his direction. The door had flung open so fast that it hit the wall with a loud ***SLAM***, leaving a large gash where the impact had occurred. Kel briefly froze in place and processed the sound with a look that screamed, ‘*Oh god fuck I did it again’* before resuming his sprint as if nothing had happened. He tackled Sunny into a bone-crushing hug.
 
