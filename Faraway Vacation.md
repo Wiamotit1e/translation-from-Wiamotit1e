@@ -49,7 +49,7 @@ Hero 在 Kel走后不久，走出了房子，并检查这墙上的损伤。他�
 
 It still felt odd to Sunny, even after two years. After his confession, Kel had been the first to reach out, just over a month after he’d been discharged from the hospital.
 
-对 Sunny 来说，尽管过了两年，这里的空气还是很古怪。在他坦白后，Kel 成为了他第一个与他联系的人，仅仅只在出院后用了一个月的时间。
+即便时隔两年，Sunny仍感到些许不适。在他坦白后，Kel 成为了他第一个与他联系的人，仅仅只在出院后用了一个月的时间。
 
 ‘*I… I don’t think I can forgive you… at least not yet. But, I really care about you, Sunny. You’re still my friend.’*
 
